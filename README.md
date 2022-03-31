@@ -1,1 +1,1 @@
-## Слава Україні "тутор MHDDoS_proxy в Colaboratory"
+## Слава Україні
